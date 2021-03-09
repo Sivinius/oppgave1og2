@@ -1,0 +1,1 @@
+# oppgave1og2
